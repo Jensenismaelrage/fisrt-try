@@ -1,2 +1,1 @@
-# fisrt-try'
-hi to the new world
+somtimes sweden is so cold the i have to go back home africa
